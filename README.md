@@ -1,6 +1,6 @@
 <h2>影猫の仓库官网入口 - 免费影视在线看|下载|网页|打不开</h2>
 <p>影猫の仓库是一个免费的影视聚合搜索引擎，致力于为用户提供高效、便捷且全面的影视资源获取渠道。它整合了全网近50个优质电影网站目录，涵盖电影、电视剧、动漫、综艺等多种类型的影视资源。用户无需注册或支付费用，即可通过关键词搜索快速找到目标影片，并直接跳转至可在线播放的链接。此外，影猫の仓库还提供高清蓝光无广告资源的在线播放，确保用户享受高质量的观影体验。平台界面简洁友好，支持夜间模式，避免了恶意广告和跳转链接，保障用户使用过程中的安全性。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5755.html" target="_blank"><strong>影猫の仓库最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingmaocangku.xxsnav.com/" target="_blank"><strong>影猫の仓库最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
